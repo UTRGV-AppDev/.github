@@ -43,7 +43,6 @@ Please reach out to us through the appropriate university channels.
 ## Connect With Us 🔗
 
 - 🏫 **University**: [UTRGV](https://www.utrgv.edu/)
-- 📧 **Contact**: Through official UTRGV channels
 
 ## Values 💡
 
